@@ -1,1 +1,1 @@
-# uit-gitix_sx61
+# uit-gitix_sx1261
